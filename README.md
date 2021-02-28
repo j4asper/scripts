@@ -1,2 +1,2 @@
 ## Hvad er alt det her?
-Det er her jeg uploader nogle af de lidt dumme ting jeg har lavet. Kort og kontant.
+Når jeg keder mig, så laver jeg bare et eller andet, og det meste kan nok findes her.
